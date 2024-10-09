@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ashik-Mosaddek 😎
+- 👋 Hi, I’m @Ashik😎
 - 👀 I’m interested in networking and cybersecurity🤩
 - 🌱 I’m currently learning cybersecurity🤩
 - 💞️ I want to collaborate with anyone because I don't know anything. I am a noob now on this track.🥴
